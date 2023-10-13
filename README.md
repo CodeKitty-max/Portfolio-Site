@@ -22,9 +22,9 @@
 * Teamwork
 
 ### Projects
-*Automated Gate - Designing a gate that automatically opens once a car is detected.
+* Automated Gate - Designing a gate that automatically opens once a car is detected.
 
-*Digital Safe - Firmare design for a simple digital safe
+* Digital Safe - Firmare design for a simple digital safe
 
 ### Work Experience
 Intership at the DSAIL lab in Dedan Kimathi - May 2022 to May 2023
