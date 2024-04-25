@@ -39,6 +39,9 @@ AI freelance technical writer - October 2022 - Present
 
 ### Links
 The following links contain the corresponding items:
+
    CV - https://docs.google.com/document/d/1nhPxz14Dq3jDcMAyXS-k2hMTyPZGCbk3E06lmRof8T4/edit?usp=sharing
+
    Tawasifu Kazi - https://docs.google.com/document/d/1KmBADYHUdCMd3Rd5XtIQYy7zZmV_hZWkzTgntEZnTiY/edit?usp=sharing
+   
    Autobiography - https://docs.google.com/document/d/1_l84R34ifQJnQPIZtFs5c-7N40P_EJxOX5qLmIJEfHA/edit?usp=sharing
