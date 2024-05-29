@@ -45,3 +45,5 @@ The following links contain the corresponding items:
 * Tawasifu Kazi -<https://docs.google.com/document/d/1KmBADYHUdCMd3Rd5XtIQYy7zZmV_hZWkzTgntEZnTiY/edit?usp=sharing>
    
 * Autobiography - <https://docs.google.com/document/d/1_l84R34ifQJnQPIZtFs5c-7N40P_EJxOX5qLmIJEfHA/edit?usp=sharing>
+
+* LinkedIn - <https://www.linkedin.com/in/mwaniki-njagi-8560631b8/>
