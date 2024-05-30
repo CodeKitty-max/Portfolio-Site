@@ -47,3 +47,7 @@ The following links contain the corresponding items:
 * Autobiography - <https://docs.google.com/document/d/1_l84R34ifQJnQPIZtFs5c-7N40P_EJxOX5qLmIJEfHA/edit?usp=sharing>
 
 * LinkedIn - <https://www.linkedin.com/in/mwaniki-njagi-8560631b8/>
+
+* Importance of African Culture In Mechatronics - <https://docs.google.com/presentation/d/1rlxfqQYwfZ9S_P5lgeQpL0CZcma02tOi2zRSv7B-V8U/edit?usp=sharing>
+
+* Personal Innovation- <https://docs.google.com/presentation/d/1OzmsqCn8f2wr_e-UltP65AepFQkwIE_dL7k5QkLe5R0/edit?usp=sharing>
