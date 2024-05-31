@@ -51,3 +51,5 @@ The following links contain the corresponding items:
 * Importance of African Culture In Mechatronics - <https://docs.google.com/presentation/d/1rlxfqQYwfZ9S_P5lgeQpL0CZcma02tOi2zRSv7B-V8U/edit?usp=sharing>
 
 * Personal Innovation- <https://docs.google.com/presentation/d/1OzmsqCn8f2wr_e-UltP65AepFQkwIE_dL7k5QkLe5R0/edit?usp=sharing>
+
+* Photographic Essay - <https://docs.google.com/document/d/1M-pBorURdf6o31d8kCz-gHzwfEHGfucqXzRHQEjPUek/edit?usp=sharing>
