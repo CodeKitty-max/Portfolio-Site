@@ -37,7 +37,7 @@ AI freelance technical writer - October 2022 - Present
 * Producing high-quality tutorials for programming.
 * Writing elaborate code to assist beginners and experts with code integration for certain frameworks
 
-### Links
+## Links
 The following links contain the corresponding items:
 
 *  CV -<https://docs.google.com/document/d/1nhPxz14Dq3jDcMAyXS-k2hMTyPZGCbk3E06lmRof8T4/edit?usp=sharing>
@@ -46,10 +46,14 @@ The following links contain the corresponding items:
    
 * Autobiography - <https://docs.google.com/document/d/1_l84R34ifQJnQPIZtFs5c-7N40P_EJxOX5qLmIJEfHA/edit?usp=sharing>
 
-* LinkedIn - <https://www.linkedin.com/in/mwaniki-njagi-8560631b8/>
-
 * Importance of African Culture In Mechatronics - <https://docs.google.com/presentation/d/1rlxfqQYwfZ9S_P5lgeQpL0CZcma02tOi2zRSv7B-V8U/edit?usp=sharing>
 
 * Personal Innovation- <https://docs.google.com/presentation/d/1OzmsqCn8f2wr_e-UltP65AepFQkwIE_dL7k5QkLe5R0/edit?usp=sharing>
 
 * Photographic Essay - <https://docs.google.com/document/d/1M-pBorURdf6o31d8kCz-gHzwfEHGfucqXzRHQEjPUek/edit?usp=sharing>
+
+### Social Media Links
+* LinkedIn - <https://www.linkedin.com/in/mwaniki-njagi-8560631b8/>
+
+### Challenges Facing Modern Society
+*Abstract Polyglot(English and Swahili) - <https://docs.google.com/document/d/1gybGcaVps1RCBnb7IVyMqjPwjRYlMQAVT47sp36prH8/edit?usp=sharing>
