@@ -62,11 +62,11 @@ The following links contain the corresponding items:
 * Whatsapp Number - 0786985289
 
 ### Aspect of African Society and Gender Equality
-*Abstract Polyglot(English and Swahili) - <https://docs.google.com/document/d/1BDc_MvnwhvfRSE3NvESX8C0QTSOELhIg6vh18XhAvOw/edit?usp=sharing>
+* Abstract Polyglot(English and Swahili) - <https://docs.google.com/document/d/1BDc_MvnwhvfRSE3NvESX8C0QTSOELhIg6vh18XhAvOw/edit?usp=sharing>
 
-*Video Presentation - <https://youtu.be/0FCvkSNlwRg>
+* Video Presentation - <https://youtu.be/0FCvkSNlwRg>
 
 ### Global Conflicts and Human Rights
-*Abstract Polyglot(English and Swahili) - <https://docs.google.com/document/d/1gybGcaVps1RCBnb7IVyMqjPwjRYlMQAVT47sp36prH8/edit?usp=sharing>
+* Abstract Polyglot(English and Swahili) - <https://docs.google.com/document/d/1gybGcaVps1RCBnb7IVyMqjPwjRYlMQAVT47sp36prH8/edit?usp=sharing>
 
-*Video Presentation - <https://youtu.be/fVx3tl62sIk>
+* Video Presentation - <https://youtu.be/fVx3tl62sIk>
