@@ -13,7 +13,7 @@
 * PLC programming-Siemens
 * Data Science
 * CAD
-* Programming languages that I use: Python, C and
+* Programming languages that I use: Python, C and Rust
 
 ### Soft Skills
 * Leadership
